@@ -1,8 +1,8 @@
 # Billy the Banana
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Billy Leaves Fruityville](chapter1.md)
+- [Billy Meets Sarah](chapter2.md)
+- [To the Golden Orchard!](chapter3.md)
+- [The End](chapter4.md)
 
 

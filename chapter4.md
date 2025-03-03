@@ -1,4 +1,4 @@
-# Chapter 4
+# The End
 The tortoise explained, “Help those who need it, and you will earn your entry. ”
 
 Determined to prove their worth, Billy and Sarah set off into the orchard. They soon spotted a group of small fruits crying because their apple friend had fallen and couldn’t get back up onto its branch. 

@@ -1,4 +1,4 @@
-# Chapter 2
+# Billy Meets Sarah
 With a bounce in his step, Billy set off down the winding road that led out of Fruityville. As he walked, he hummed a happy tune. The sun shone brightly, and the birds sang sweetly in the trees. He felt excited and free. 
 
 After walking for a while, Billy came across a thick forest. The trees were tall, and their leaves whispered secrets in the wind. Billy hesitated for a moment. Was it safe to go inside? Gathering his courage, he stepped beneath the leafy canopy. 

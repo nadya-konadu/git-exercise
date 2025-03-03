@@ -1,4 +1,4 @@
-# Chapter 3
+# To the Golden Orchard!
 Excited, they hurried down the path, but suddenly they encountered a large, hairy spider lounging across it. “Who goes there? ” the spider asked, raising its many legs. “To pass, you must answer my riddle! ”
 
 Billy gulped but nodded bravely. “What’s the riddle? ”
