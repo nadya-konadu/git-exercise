@@ -15,4 +15,4 @@ The gate opened, revealing the most amazing sight. The trees were heavy with spa
 
 “You did it! ” Sarah squealed, hugging Billy. “We found it together! ”
 
-As they celebrated their incredible journey, Billy realized that while adventures are exciting, the friends we make and the kindness we show are what truly make each adventure special. And so, in the heart of the Golden Orchard, they began a new chapter of their lives, surrounded by the sweetest fruits and friendships that would last forever. 
+As they celebrated their incredible journey, Billy realized that while adventures are exciting, the friends we make and the kindness we show are what truly make each adventure special.

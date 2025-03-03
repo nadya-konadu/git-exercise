@@ -13,5 +13,5 @@ Billy dashed to her side. “Don’t worry, Sarah! I’ll help you! ” He caref
 
 “Why don’t you join me on my adventure? ” Billy suggested. “We can find it together! ”
 
-Sarah agreed, and the two new friends journeyed on. As they walked, they talked and shared stories about their dreams. They laughed and sang, and before long, they spotted a narrow path leading out of the forest. 
+Sarah agreed, and the two new friends journeyed on. As they walked, they talked and shared stories about their dreams. 
 

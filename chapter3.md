@@ -17,5 +17,4 @@ Eagerly, they rushed toward the light, but when they reached the orchard, they f
 
 “To enter the Golden Orchard, you must complete a task,” Tommy said slowly. “You must show kindness to others and bring back proof of your good deeds. ”
 
-Billy and Sarah looked at each other, puzzled. “What do we do? ” Billy asked. 
 

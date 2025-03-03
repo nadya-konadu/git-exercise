@@ -5,5 +5,4 @@ One sunny morning, Billy decided it was the perfect day to start his adventure. 
 
 “Be careful, Billy! ” shouted Lucy with a worried look on her face. “The world outside can be scary! ”
 
-“I will, Lucy! ” replied Billy with a wave. “But I must see the Golden Orchard! ”
 
